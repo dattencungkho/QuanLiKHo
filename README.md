@@ -1,2 +1,0 @@
-# QuanLiKHo
-QuanLiKHo
